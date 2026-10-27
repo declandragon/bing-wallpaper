@@ -1,5 +1,7 @@
 ## Bing Wallpaper
 
+2026-10-28 | [A grove of pond cypress trees with fall foliage, Georgia, United States (© Chris Moore/Getty Images)](https://cn.bing.com/th?id=OHR.PondCypress_EN-CA4795569261_UHD.jpg)
+
 2026-10-26 | [Autumn waterfalls near Sitovo, Plovdiv Province, Bulgaria (© Nadya85/Getty Images)](https://cn.bing.com/th?id=OHR.SitovoWaterfall_EN-US7626867890_UHD.jpg)
 
 2026-10-25 | [Royal Portuguese Cabinet of Reading, Rio de Janeiro, Brazil (© Antonio Salaverry/Shutterstock)](https://cn.bing.com/th?id=OHR.PortugueseLibrary_EN-US7519268149_UHD.jpg)
